@@ -1,1 +1,1 @@
-# SC_1B
+# Group 23 Summer Course
